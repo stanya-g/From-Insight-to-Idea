@@ -1,24 +1,23 @@
-# The Missing Sense in Retail — "THE SCENT GAP"
+# The Missing Sense in Retail - "THE SCENT GAP"
 
-*Part of the series: Insight to Idea — where everyday observations turn into marketing ideas*
+*Part of the series: Insight to Idea - where everyday observations turn into marketing ideas*
 
 I spent a few weeks talking to shoppers about what actually influences what ends up in their carts. The answers were predictable. New flavours. Attractive packaging. In-store displays. The usual suspects. But one comment kept coming up that had nothing to do with any of that.
 People were talking about popcorn.
-At a large supermarket, fresh popcorn was sold near the exit. Multiple shoppers described the same behaviour: they'd finish shopping, catch the smell on their way out, and suddenly decide to buy some. One shopper even mentioned choosing popcorn over ice cream on a hot summer day — the smell got to them first.
+At a large supermarket, fresh popcorn was sold near the exit. Multiple shoppers described the same behaviour: they'd finish shopping, catch the smell on their way out, and suddenly decide to buy some. One shopper even mentioned choosing popcorn over ice cream on a hot summer day - the smell got to them first.
 
 That got me thinking.
 Modern supermarkets are designed around sight. Bright packaging. Large displays. Promotional signage. End-cap placements. Everything fighting for your attention. Sound plays a role too. Stores use music and announcements to shape the shopping experience.
 
 But what about smell?
-For a place filled with products, supermarkets are surprisingly scentless. Most FMCG products sit sealed inside packaging. Shoppers can see them, compare them, and read about them — but rarely experience them before buying. Yet smell is one of the fastest ways to trigger memory, emotion, and craving. And unlike sight and sound, it remains largely underutilized in FMCG retail. What's interesting is that sensory marketing isn't new. Hotels, bakeries, coffee chains, and fashion retailers have used scent for years to shape experiences and build brand recall. But I rarely see it being used to help shoppers discover packaged products.
+For a place filled with products, supermarkets are surprisingly scentless. Most FMCG products sit sealed inside packaging. Shoppers can see them, compare them, and read about them - but rarely experience them before buying. Yet smell is one of the fastest ways to trigger memory, emotion, and craving. And unlike sight and sound, it remains largely underutilized in FMCG retail. What's interesting is that sensory marketing isn't new. Hotels, bakeries, coffee chains, and fashion retailers have used scent for years to shape experiences and build brand recall. But I rarely see it being used to help shoppers discover packaged products.
 
 That led me to an idea.
 Instead of relying only on visual displays, brands could create temporary scent-led activations around key launches, seasonal campaigns, or hero products. Imagine a summer beverage display accompanied by the subtle aroma of ripe mangoes. Or a coffee brand creating the scent of freshly brewed coffee around a promotional zone. 
-The objective wouldn't be to make people buy. It would be to make them pause. To notice. To walk over. The display, packaging, pricing, and product would still do the selling. The scent would simply help win the first battle: attention. Of course, if every brand started doing this, the store would become a sensory mess. That's exactly why the opportunity exists today — smell remains one of the few relatively uncontested channels in a retail environment where visual clutter grows every year.
+The objective wouldn't be to make people buy. It would be to make them pause. To notice. To walk over. The display, packaging, pricing, and product would still do the selling. The scent would simply help win the first battle: attention. Of course, if every brand started doing this, the store would become a sensory mess. That's exactly why the opportunity exists today - smell remains one of the few relatively uncontested channels in a retail environment where visual clutter grows every year.
 
 The insight was never really about popcorn. It was realizing that while brands compete relentlessly for what shoppers see and hear, one of the most powerful senses is still sitting on the sidelines.
 
-And that makes me wonder -
-What happens when the next in-store marketing battle isn't fought on shelves, but in the air?
+And that makes me wonder - What happens when the next in-store marketing battle isn't fought on shelves, but in the air?
 
 *Part of my ongoing series turning everyday observations into marketing ideas.*
